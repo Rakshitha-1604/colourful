@@ -1,1 +1,2 @@
 # colourful
+life is colourful
